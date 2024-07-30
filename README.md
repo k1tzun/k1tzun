@@ -8,6 +8,7 @@ you can c+h w/ me whenever UNLESS i have dniuf or dni in my name (which is rare)
 🐾about me🐾
 ;; i enjoy to draw, and im trying to learn how to do anatomy (not for weird reasons you freak)
 ;; i am literally the bullys #1 fan from mdp i will find everything out about him
+;; im a wolf therian !!
 ;; um idk
 
 🐾fandoms im in🐾
