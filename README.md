@@ -3,7 +3,7 @@ hi !! im kitzu or kiztun!!🐾
 ;; genderfluid and lesbian !!
 
 🐾for ponytown🐾
-you can c+h w/ me whenever UNLESS i have dniuf or dni in my name (which is rare) ! i may be awkward tho ^_^
+you can c+h w/ me whenever UNLESS i have dniuf or dni in my name (which is rare) ! i may be awkward tho ^_^ im usually seen at spawn, phighting area or cave!
 
 🐾about me🐾
 ;; i enjoy to draw, and im trying to learn how to do anatomy (not for weird reasons you freak)
