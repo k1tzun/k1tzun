@@ -12,4 +12,4 @@ you can c+h w/ me whenever UNLESS i have dniuf or dni in my name (which is rare)
 ;; um idk
 
 🐾fandoms im in🐾
-max design pro, slendytubbies, baldi basics, ori, rain world, centaurworld, fnaf, pressure, doors, picos school, poppy playtime, etc (i forgot the rest)
+max design pro, slendytubbies, baldi basics, ori, rain world, centaurworld, fnaf, pressure, doors, picos school, poppy playtime, night of the consumers, etc (i forgot the rest)
